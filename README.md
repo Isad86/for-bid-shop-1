@@ -1,0 +1,1 @@
+# for-bid-shop-1
